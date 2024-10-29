@@ -1,1 +1,1 @@
-https://www.saes.esimecu.ipn.mx/Alumnos/Informacion_semestral/calificaciones_sem.aspx
+
